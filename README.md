@@ -35,7 +35,7 @@ Similarly, if you have feedback for someone else you work with, I encourage you 
 
 ## Positive Intent
 
-I always start with an assumption of positive intent for all involved.
+I always start with an assumption of positive intent for all involved. I believe people usually try to do the right thing given the information they have at that point in time.
 
 ## Growth and learning
 
