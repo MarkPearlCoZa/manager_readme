@@ -13,7 +13,7 @@ I serve you, not the other way around. I'm here to help. Ask me. You work for MY
 
 I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. If it's important and it does not need an immediate response email me. If you need an answer to something important or you are sending me important information email me. 
 
-If it is something that needs immediate attention call me (my number is +64 22 161 7226).
+If there is something that needs my immediate attention and I'm not responding on Slack call me (my number is +64 22 161 7226).
 
 # On my schedule 
 
