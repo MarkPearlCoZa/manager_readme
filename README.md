@@ -33,7 +33,9 @@ I work from home once a week on Monday's which I prefer to keep clear from meeti
 
 #  Want to talk? Let's talk
 
-I tend to have a lot of things on the go, very few of them are more important than spending time talking with you if you want to talk with me. Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let's talk just let me know via Slack or phone me and I'll make some space.  
+I tend to have a lot of things on the go, very few of them are more important than spending time talking with you if you want to talk with me. 
+
+Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let's talk just let me know via Slack or phone me and I'll make some space.  
 
 # One on ones'
 
