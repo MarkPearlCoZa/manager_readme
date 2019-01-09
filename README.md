@@ -85,7 +85,7 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 **I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
-**I talk to think**. That means sometimes I explore ideas out loud. Often when I'm dong this I am still in the process of thinking things through. If I say something that you feel is poorly defined call it out, it helps me think it through better.
+**I talk to think**. That means sometimes I explore ideas out loud even if they are not fully fleshed out. If I say something that you feel is poorly defined or just doesn't sit well call it out, it helps me think things through better.
 
 **I have a poor short term memory**. Blame it to having 3 young kids and so not getting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
 
