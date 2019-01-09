@@ -41,9 +41,9 @@ Feel entirely free to catch up with me ad-hoc via Slack or in person, or put tim
 
 I would love to do weekly one-on-ones with all my direct reports but because how the academy is structured and the number of direct reports this is simply not feasible. 
 
-Realistically with many of you I will have a one-on-ones once a quarter. I know that isn't ideal. To counter this we've tried to find the best mentors possible for you and I expect you to be having weekly one-on-ones with them, if this isn't happening let me know.
+Realistically with many of you I will have a one-on-ones once a quarter. I know that isn't ideal. To counter this I've tried to find the best mentors possible for you and I expect you to be having weekly one-on-ones with them, if this isn't happening let me know.
 
-One-on-ones are for you. I want you to drive the agenda around what's on your mind, what you feel is succeeding, what you are challenged by and above all how I can help you. I'll ask questions to help discover more when we have them.
+When we have one-on-ones they are for you. I want you to drive the agenda around what's on your mind, what you feel is succeeding, what you are challenged by and above all how I can help you. I'll ask questions to help discover more when we have them.
 
 If you work in the same city as me I prefer to do one-on-ones in person, so if you need to work from home on a day we're scheduled for a one-on-one please let me know so we can reschedule it.
 
@@ -92,4 +92,6 @@ I optimize for growth and learning which is probably why I got involved in the F
 **I like to great people by name and give them a hand shake**. Call me old fashioned, I greet people with handshakes. If that feels awkward I'm up for any sort of variation of a handshake, from fist bump to personalized secret handshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave. I also like to greet you by name, because of the challenges with my short term memory sometimes I may forget your name, if this happens just remind me. Don't feel like I don't care, I've forgotten my sisters name once.
 
 **I hate indifference**. I feel strongly that if I'm in a "system" or work for a company and I'm not happy with how things are going then I should do everything in my power to change the system or let those know who are able to make changes be aware of what can be improved. This is not always easy however it's better than just not caring. I expect that of people I work with.
+
+**I try my best to show up on time and expect you to do the same**. I hate being late for meetings, although sometimes it happens. I will do my very best to be at a meeting before it starts. Sometimes I have back to back meetings which means I need about 5 minutes to get from the one to the other. I will do my utmost to be at meetings on time. I absolutely have the expectation that you will do the same. 
 
