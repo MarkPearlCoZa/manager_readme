@@ -15,7 +15,7 @@ I like Slack for quick interactions but sometimes I'm busy when a message comes 
 
 If it's important and it does not need an immediate response **email me**. If you need an answer to something important or you are sending me important information **email me**. 
 
-I generally respond to emails within 24 hours unless it's a weekend or I'm on leave. If I haven't responded to your email within 24 hours and you need a response don't be shy to send me a poke over Slack to respond.  
+I generally respond to emails within 24 hours unless it's a weekend or I'm on leave. If I haven't responded to your email within 24 hours and you need a response don't be shy to send me a poke over Slack or text.  
 
 If it feels like we’re having trouble communicating I will always err on the side of, "let's meet face to face", or if you are in“let’s hop on a video call”.
 
