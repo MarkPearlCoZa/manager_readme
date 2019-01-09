@@ -35,7 +35,7 @@ I work from home once a week on Monday's which I prefer to keep clear from meeti
 
 I tend to have a lot of things on the go, very few of them are more important than spending time talking with you if you want to talk with me. 
 
-Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let's talk just let me know via Slack or phone me and I'll make some space.  
+Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let me know via Slack or phone me and I'll make some space.  
 
 # One on ones'
 
@@ -45,7 +45,7 @@ I prefer to do one-on-ones in person if possible, so if you need to work from ho
 
 ## Transparency & Candor 
 
-I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. MYOB may rarely require me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I'm committed to never lying to you.
+I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. MYOB rarely requires me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I'm committed to never lying to you.
 
 ## Feedback
 
