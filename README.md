@@ -27,7 +27,7 @@ My average day starts with an hour of reading and learning, during this time I f
 
 I rarely take a lunch break, I prefer to eat and work although I always appreciate invitations to join you for special lunches or just to catch up.
 
-If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterrupted time to move away from my desk into a meeting room). If I'm sitting in an open space it is usually just that I want a change of scenery, feel free to approach/interrupt in these situations as well.
+If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterrupted time to move away from my desk into a meeting room). If I'm sitting in an open space it is usually just that I want a change of scenery, feel free to approach/interrupt me in these situations as well.
 
 I work from home once a week on Monday's which I prefer to keep clear from meetings to optimize for deep thinking **however** if you have something that is urgent don't hesitate to reach out to me during this time.
 
