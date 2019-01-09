@@ -47,6 +47,8 @@ When we have one-on-ones they are for you. I want you to drive the agenda around
 
 If you work in the same city as me I prefer to do one-on-ones in person, so if you need to work from home on a day we're scheduled for a one-on-one please let me know so we can reschedule it.
 
+If you work in a different city I'm happy to do one-on-ones on video chat and when I travel to that city I try my best to let people know beforehand so that there are opportunities to meet in person. If you know I'm going to be in town and would like to have a one-on-one and I haven't said anything just poke me on Slack and we will set something up.
+
 If you feel we haven't had a one-on-one in a while and you would like one feel free to pop one in my calendar.
 
 At the end of the day one-on-ones are about building relationships on a level beyond simply “what’s going on with your work today”. I’m here to support you and your growth, it’s up to you to let me know how best I can do that.
