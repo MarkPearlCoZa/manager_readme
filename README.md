@@ -43,8 +43,10 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 # Nuance 
 
-*I am an introvert* and that means sometimes I get quiet
+**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge.
 
-*I hate absolutes*. Always and never are triggers for me.
+**I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
-*I talk to think*. That means sometimes I may be exploring an idea outloud and are still in the process of thinking it through. If I say something that you feel is poorly defined call it out, sometimes I don't realise it.
+**I talk to think**. That means sometimes I may be exploring an idea outloud and are still in the process of thinking it through. If I say something that you feel is poorly defined call it out, sometimes I don't realise it.
+
+**I have a poor short term memory**. Blame it to having 3 young kids and so not gettting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
