@@ -65,7 +65,7 @@ I have opinions. This does not mean they are correct or you should blindly belie
 
 ## Growth and learning
 
-I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are regularly growing and learning even if that place is not here. I will do everything I can to help you get into a growth environment.
+I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want **you** to work in a place **where you are regularly growing and learning even if that place is not here**. I will do everything I can to help you get into a growth environment. 
 
 # Nuance 
 
