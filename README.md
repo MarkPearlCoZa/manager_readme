@@ -81,7 +81,7 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 # Nuance 
 
-**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge. Often a quick walk around the neighborhood does is enough.  
+**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge. Often a quick walk around the neighborhood is enough. You will often see me walking. I like to walk and chat, feel free to join me for a walk anytime.    
 
 **I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
