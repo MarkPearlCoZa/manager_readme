@@ -17,7 +17,7 @@ I like Slack for quick interactions but sometimes I'm busy when a message comes 
 
 I am a morning person.  I am usually in the office between 7am and 4pm (New Zealand Time). 
 
-My average day starts with an hour of reading and learning. During this time I usually find a private space to hide away.
+My average day starts with an hour of reading and learning, during this time I usually find a private space to hide away which means I'm around... you just can't see me :-)
 
 If I'm at my desk you are welcome to interrupt me. If I'm needing some uninterupted time I move away from my desk.
 
