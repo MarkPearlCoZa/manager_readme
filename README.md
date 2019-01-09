@@ -23,7 +23,7 @@ If there is something that needs my immediate attention and I'm not responding o
 
 I am a morning person.  I am usually in the office between 7am and 4pm (New Zealand Time). 
 
-My average day starts with an hour of reading and learning, during this time I usually find a private space to hide away which means I'm around... you just can't see me :-)
+My average day starts with an hour of reading and learning, during this time I find a private space to hide away and be on my own which means I'm around... you just can't see me :-)
 
 I rarely take a lunch break, I prefer to eat and work although I always appreciate invitations to join you for special lunches or just to catch up.
 
