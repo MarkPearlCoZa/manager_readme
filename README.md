@@ -25,7 +25,7 @@ I rarely take a lunch break, I prefer to eat and work although I always apprecia
 
 If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterupted time to move away from my desk).  
 
-I usually work from home once a week on Monday's which I prefer to keep clear for deep thinking however if you have something that is urgent don't hesitate to reach out to me during this time.
+I usually work from home once a week on Monday's which I prefer to keep clear from meetings to optimize for deep thinking **however** if you have something that is urgent don't hesitate to reach out to me during this time.
 
 ##  Want to talk? Let's talk
 
