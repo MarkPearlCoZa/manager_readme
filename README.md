@@ -23,7 +23,7 @@ I like Slack for quick interactions but sometimes I'm busy when a message comes 
 
 ## Candor 
 
-MYOB may rarely require me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. Rarely I won't. I'm committed to never lying to you.
+I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. MYOB may rarely requires me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I'm committed to never lying to you.
 
 ## Feedback
 
