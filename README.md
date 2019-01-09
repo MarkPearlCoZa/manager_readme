@@ -49,6 +49,8 @@ If you work in the same city as me I prefer to do one-on-ones in person, so if y
 
 If you feel we haven't had a one-on-one in a while and you would like one feel free to pop one in my calendar.
 
+At the end of the day one-on-ones are about building relationships on a level beyond simply “what’s going on with your work today”. I’m here to support you and your growth, it’s up to you to let me know how best I can do that.
+
 # My North Star Principles
 
 ## Transparency & Candor 
