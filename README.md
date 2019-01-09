@@ -41,13 +41,13 @@ Feel entirely free to catch up with me ad-hoc via Slack or in person, or put tim
 
 I would love to do weekly one-on-ones with all my direct reports but because how the academy is structured and the number of direct reports this is simply not feasible. 
 
-Realistically with many of you I will have a one-on-ones once a quarter. I know that isn't ideal. To counter this I've tried to find the best mentors possible for you and I expect you to be having weekly one-on-ones with them, if this isn't happening let me know.
+With many of you I will have a one-on-ones once a quarter. I know that isn't ideal. To counter this I've tried to find the best mentors possible for you and I expect you to be having weekly one-on-ones with them, if this isn't happening let me know.
 
 When we have one-on-ones they are for you. I want you to drive the agenda around what's on your mind, what you feel is succeeding, what you are challenged by and above all how I can help you. I'll ask questions to help discover more when we have them.
 
 If you work in the same city as me I prefer to do one-on-ones in person, so if you need to work from home on a day we're scheduled for a one-on-one please let me know so we can reschedule it.
 
-If you work in a different city I'm happy to do one-on-ones on video chat and when I travel to that city I try my best to let people know beforehand so that there are opportunities to meet in person. If you know I'm going to be in town and would like to have a one-on-one and I haven't said anything just poke me on Slack and we will set something up.
+If you work in a different city I'm happy to do one-on-ones on video chat. When I travel to your city I will do my best to let everyone know I will be around so that there are opportunities to meet in person. If you know I'm going to be in town and would like to have a one-on-one and I haven't said anything just poke me on Slack and we will set something up.
 
 If you feel we haven't had a one-on-one in a while and you would like one feel free to pop one in my calendar.
 
