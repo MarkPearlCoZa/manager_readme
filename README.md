@@ -7,13 +7,13 @@ I'm writing this readme as an experiment to see if it helps you work with me bet
 - Attract and retain world-class talent (that's you)  
 - Set context for participants in the Future Makers Academy
 
-I serve you, not the other way around. I'm here to help. Ask me. 
-
-You work for MYOB, not for me nor any other manager. Optimize for MYOB. 
+I serve you, not the other way around. I'm here to help. Ask me. You work for MYOB, not for me nor any other manager. Optimize for MYOB. 
 
 # On methods of communication 
 
-I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. If it's important and it does not need an immediate response email me. If you need an answer to something important or you are sending me important information... you guessed it... email me. If it is something that needs immediate attention call me (my number is +64 22 161 7226).
+I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. If it's important and it does not need an immediate response email me. If you need an answer to something important or you are sending me important information email me. 
+
+If it is something that needs immediate attention call me (my number is +64 22 161 7226).
 
 # On my schedule 
 
