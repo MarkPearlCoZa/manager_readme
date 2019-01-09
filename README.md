@@ -27,7 +27,7 @@ My average day starts with an hour of reading and learning, during this time I f
 
 I rarely take a lunch break, I prefer to eat and work although I always appreciate invitations to join you for special lunches or just to catch up.
 
-If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterrupted time to move away from my desk into a meeting room). If I'm sitting in an open space it is usually just that I want a change of scenery, feel free to approach/interrupt me as well.
+If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterrupted time to move away from my desk into a meeting room). If I'm sitting in an open space it is usually just that I want a change of scenery, feel free to approach/interrupt in these situations as well.
 
 I work from home once a week on Monday's which I prefer to keep clear from meetings to optimize for deep thinking **however** if you have something that is urgent don't hesitate to reach out to me during this time.
 
@@ -35,7 +35,7 @@ I work from home once a week on Monday's which I prefer to keep clear from meeti
 
 I tend to have a lot of things on the go, very few of them are more important than spending time talking with you if you want to talk with me. 
 
-Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let me know via Slack or phone me and I'll make some space.  
+Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let me know via Slack or phone and I'll make some space.  
 
 # One on ones'
 
@@ -49,9 +49,9 @@ I bias toward transparency and candor. You can ask me anything. Most of the time
 
 ## Feedback
 
-I'm make mistakes and want to improve just like you which is why I embrace all forms of feedback. While I like to hear about the things you liked and would like to see more of, I find it even more useful hearing about the things you didn't like and thought I could do better on.
+I make mistakes and want to improve just like you which is why I really value all forms of feedback. While I love hearing about the things you liked and would like to see more of, I find it even more useful hearing about the things you didn't like and thought I could do better on. 
 
-I prefer in-person feedback. That allows me to get more context. If you're only comfortable initiating feedback with an email or a Slack message, I would rather you do that than not bring it up at all. If you're not comfortable giving me this feedback directly, I'd love for you to give it to someone else (like Chanh) so that she can anonymously relay it to me. 
+I prefer in-person feedback. That allows me to get more context. If you're only comfortable initiating feedback with an email or a Slack message, I would rather you do that than not give me feedback at all. If you're not comfortable giving me feedback directly, I'd love for you to give it to someone else (like Chanh) so that she can anonymously relay it to me. 
 
 Similarly, if you have feedback for someone else you work with, I encourage you to give it to them directly; if you're not comfortable doing so, feel free to relay it to me and I will pass it along. If you want to give direct feedback but aren't sure how or aren't comfortable doing so, let me know and we can talk through it.
 
@@ -65,7 +65,7 @@ I have opinions. This does not mean they are correct or you should blindly belie
 
 ## Growth and learning
 
-I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are regularly growing and learning.
+I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are regularly growing and learning even if that place is not here. I will do everything I can to help you get into a growth environment.
 
 # Nuance 
 
