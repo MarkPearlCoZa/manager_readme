@@ -19,23 +19,27 @@ I like Slack for quick interactions but sometimes I'm busy when a message comes 
 
 - Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let's talk just let me know via Slack or phone me and I'll make some space.  
 
-# Feedback
+# My North Star Principles
 
-I'm make mistakes and want to improve just like you which is why I embrace all forms of feedback. While I like to hear about the things you liked and would like to see more of, I find it even more useful hearing about the things you thought I could do better on.
+## Candor 
+
+MYOB may rarely require me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. Rarely I won't. I'm committed to never lying to you.
+
+## Feedback
+
+I'm make mistakes and want to improve just like you which is why I embrace all forms of feedback. While I like to hear about the things you liked and would like to see more of, I find it even more useful hearing about the things you didn't like and thought I could do better on.
 
 I prefer in-person feedback. That allows me to get more context. If you're only comfortable initiating feedback with an email or a Slack message, I would rather you do that than not bring it up at all. If you're not comfortable giving me this feedback directly, I'd love for you to give it to someone else (like Chanh) so that she can anonymously relay it to me. 
 
 Similarly, if you have feedback for someone else you work with, I encourage you to give it to them directly; if you're not comfortable doing so, feel free to relay it to me and I will pass it along. If you want to give direct feedback but aren't sure how or aren't comfortable doing so, let me know and we can talk through it.
 
-# My North Star Principles
+## Positive Intent
 
-*Candor*. This company may require me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. Rarely I won't. I'm committed to never lying to you.
+I always start with an assumption of positive intent for all involved.
 
-*Feedback*. I value feedback of all forms. Feedback on what I'm doing well is great, but the really useful feedback is the type that shows areas I can improve. If you have a problem with something, or see a better way I can do things let me know. I always value the feedback.
+## Growth and learning
 
-*I assume positive intent*. I start with an assumption of positive intent for all involved.
-
-*I optimize for growth and learning*.
+I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are reguarly growing and learning.
 
 # Nuance 
 
