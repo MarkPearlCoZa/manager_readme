@@ -23,7 +23,7 @@ My average day starts with an hour of reading and learning, during this time I u
 
 If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterupted time to move away from my desk).  
 
-I rarely take a lunch break, I prefer to eat and work.
+I rarely take a lunch break, I prefer to eat and work although I always appreciate an invite to join you for lunch.
 
 I usually work from home once a week on Monday's which I prefer to keep clear for deep thinking however if you have something that is urgent don't hesitate to reach out to me during this time.
 
@@ -67,3 +67,5 @@ I optimize for growth and learning which is probably why I got involved in the F
 **I talk to think**. That means sometimes I explore ideas outloud. Often when I'm dong this I am still in the process of thinking things through. If I say something that you feel is poorly defined call it out, it helps me think it through better.
 
 **I have a poor short term memory**. Blame it to having 3 young kids and so not gettting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
+
+**I like to great people by name and give them a hand shake**. Call me old fashioned, I greet people with handshakes. If that feels awkward I'm up for any sort of variation, from fist bump to personalized hanshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave.
