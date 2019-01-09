@@ -15,7 +15,7 @@ I like Slack for quick interactions but sometimes I'm busy when a message comes 
 
 I generally respond to emails within 24 hours unless it's a weekend or I'm on leave. If I haven't responded to your email within 24 hours and you need a response don't be shy to send me a poke over Slack or text.  
 
-If it feels like we’re having trouble communicating I will always err on the side of "let's chat face to face", or if we are not physically co-located then "let’s hop on a video call" to have a quick chat.
+If it feels like we’re having trouble communicating I will always err on the side of "let's chat face to face", or "let’s hop on a video call" to have a quick chat.
 
 If there is something that needs my immediate attention and I'm not responding on Slack call me (my number is +64 22 161 7226).
 
