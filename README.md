@@ -13,11 +13,26 @@ I serve you, not the other way around. I'm here to help. Ask me. You work for MY
 
 I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. If it's important and it does not need an immediate response email me. If you need an answer to something important or you are sending me important information... you guessed it... email me. If it is something that needs immediate attention call me (my number is +64 22 161 7226).
 
-# Want to talk? Let's talk
+# On my schedule 
+
+I am a morning person.  I am usually in the office between 7am and 4pm (New Zealand Time). 
+
+My average day starts with an hour of reading and learning. During this time I usually find a private space to hide away.
+
+If I'm at my desk you are welcome to interrupt me. If I'm needing some uninterupted time I move away from my desk.
+
+I rarely take a lunch break, I prefer to eat and work.
+
+I usually work from home once a week on Monday's which I prefer to keep clear for deep thinking however if you have something that is urgent don't hesitate to reach out to me during this time.
+
+##  Want to talk? Let's talk
 
 - I usually have a lot of things on the go, very few of them are more important than spending time talking with you if you want to talk with me.
-
 - Feel entirely free to catch up with me ad-hoc via Slack or in person, or put time on my calendar to talk whenever you want. You may not find a slot on my calendar in any given day, if you want to talk let's talk just let me know via Slack or phone me and I'll make some space.  
+
+# One on ones'
+
+I prefer to do one-on-ones in person if possible, so if you need to work from home on a day we're scheduled for a one-on-one and rescheduling is an option, please let me know so I can reschedule it, or reschedule it yourself during an open slot in my calendar.
 
 # My North Star Principles
 
@@ -47,6 +62,6 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 **I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
-**I talk to think**. That means sometimes I may be exploring an idea outloud and are still in the process of thinking it through. If I say something that you feel is poorly defined call it out, sometimes I don't realise it.
+**I talk to think**. That means sometimes I explore ideas outloud. Often when I'm dong this I am still in the process of thinking things through. If I say something that you feel is poorly defined call it out, it helps me think it through better.
 
 **I have a poor short term memory**. Blame it to having 3 young kids and so not gettting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
