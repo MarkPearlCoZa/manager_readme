@@ -11,9 +11,7 @@ I serve you, not the other way around. I'm here to help. Ask me. You work for MY
 
 # On methods of communication 
 
-I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. 
-
-If it's important and it does not need an immediate response **email me**. If you need an answer to something important or you are sending me important information **email me**. 
+I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond so if you have something important and it does not need an immediate response **email me**. If you need an answer to something important or you are sending me important information **email me**. 
 
 I generally respond to emails within 24 hours unless it's a weekend or I'm on leave. If I haven't responded to your email within 24 hours and you need a response don't be shy to send me a poke over Slack or text.  
 
@@ -61,6 +59,10 @@ Similarly, if you have feedback for someone else you work with, I encourage you 
 
 I always start with an assumption of positive intent for all involved. I believe people usually try to do the right thing given the information they have at that point in time.
 
+## Opinionated
+
+I have opinions. This does not mean they are correct or you should blindly believe them. Please challenge my opinions so that I can learn with you.
+
 ## Growth and learning
 
 I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are regularly growing and learning.
@@ -74,5 +76,7 @@ I optimize for growth and learning which is probably why I got involved in the F
 **I talk to think**. That means sometimes I explore ideas out loud. Often when I'm dong this I am still in the process of thinking things through. If I say something that you feel is poorly defined call it out, it helps me think it through better.
 
 **I have a poor short term memory**. Blame it to having 3 young kids and so not getting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
+
+**I am traditionally a people pleaser**. While I am no longer unable to say "no", I still want to find a way to help others. I try my best to not let this impact my ability to do my job, and more importantly those I work with. If you feel I am "people pleasing" to the greater detriment of others, please call me out on it. I have grounded myself over the years so for the most part this is no longer an issue, but it does slip through sometimes.
 
 **I like to great people by name and give them a hand shake**. Call me old fashioned, I greet people with handshakes. If that feels awkward I'm up for any sort of variation, from fist bump to personalized handshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave.
