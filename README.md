@@ -21,7 +21,7 @@ I am a morning person.  I am usually in the office between 7am and 4pm (New Zeal
 
 My average day starts with an hour of reading and learning, during this time I usually find a private space to hide away which means I'm around... you just can't see me :-)
 
-I rarely take a lunch break, I prefer to eat and work although I always appreciate invitations to join you for lunch for special events or just to catch up.
+I rarely take a lunch break, I prefer to eat and work although I always appreciate invitations to join you for special lunches or just to catch up.
 
 If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterupted time to move away from my desk).  
 
