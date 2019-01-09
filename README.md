@@ -39,7 +39,15 @@ Feel entirely free to catch up with me ad-hoc via Slack or in person, or put tim
 
 # One on ones'
 
-I prefer to do one-on-ones in person if possible, so if you need to work from home on a day we're scheduled for a one-on-one and rescheduling is an option, please let me know so I can reschedule it, or reschedule it yourself during an open slot in my calendar.
+I would love to do weekly one-on-ones with all my direct reports but because how the academy is structured and the number of direct reports this is simply not feasible. 
+
+Realistically with many of you I will have a one-on-ones once a quarter. I know that isn't ideal. To counter this we've tried to find the best mentors possible for you and I expect you to be having weekly one-on-ones with them, if this isn't happening let me know.
+
+One-on-ones are for you. I want you to drive the agenda around what's on your mind, what you feel is succeeding, what you are challenged by and above all how I can help you. I'll ask questions to help discover more when we have them.
+
+If you work in the same city as me I prefer to do one-on-ones in person, so if you need to work from home on a day we're scheduled for a one-on-one please let me know so we can reschedule it.
+
+If you feel we haven't had a one-on-one in a while and you would like one feel free to pop one in my calendar.
 
 # My North Star Principles
 
