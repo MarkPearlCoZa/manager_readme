@@ -1,6 +1,6 @@
 Hi, welcome to my "manager" readme. 
 
-I'm writing this readme as an experiment to see if it helps you work with me better as well as to make your onboarding smoother. This document will evolve as I evolve.
+I'm writing this readme as an experiment to see if it helps you work with me better as well as to make your on boarding smoother. This document will evolve as I evolve.
 
 # My Job
 
@@ -29,7 +29,7 @@ My average day starts with an hour of reading and learning, during this time I f
 
 I rarely take a lunch break, I prefer to eat and work although I always appreciate invitations to join you for special lunches or just to catch up.
 
-If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterupted time to move away from my desk).  
+If I'm at my desk you are welcome to come over and interrupt me (I know that if I need some uninterrupted time to move away from my desk into a meeting room). If I'm sitting in an open space it is usually just that I want a change of scenery, feel free to approach/interrupt me.
 
 I work from home once a week on Monday's which I prefer to keep clear from meetings to optimize for deep thinking **however** if you have something that is urgent don't hesitate to reach out to me during this time.
 
@@ -63,7 +63,7 @@ I always start with an assumption of positive intent for all involved. I believe
 
 ## Growth and learning
 
-I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are reguarly growing and learning.
+I optimize for growth and learning which is probably why I got involved in the Future Makers Academy in the first place. I want you to work in a place where you are regularly growing and learning.
 
 # Nuance 
 
@@ -71,8 +71,8 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 **I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
-**I talk to think**. That means sometimes I explore ideas outloud. Often when I'm dong this I am still in the process of thinking things through. If I say something that you feel is poorly defined call it out, it helps me think it through better.
+**I talk to think**. That means sometimes I explore ideas out loud. Often when I'm dong this I am still in the process of thinking things through. If I say something that you feel is poorly defined call it out, it helps me think it through better.
 
-**I have a poor short term memory**. Blame it to having 3 young kids and so not gettting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
+**I have a poor short term memory**. Blame it to having 3 young kids and so not getting enough sleep, I'm aware that I have a poor short term memory and sometimes forget the things. I'm actively working on it. Be patient with me. 
 
-**I like to great people by name and give them a hand shake**. Call me old fashioned, I greet people with handshakes. If that feels awkward I'm up for any sort of variation, from fist bump to personalized hanshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave.
+**I like to great people by name and give them a hand shake**. Call me old fashioned, I greet people with handshakes. If that feels awkward I'm up for any sort of variation, from fist bump to personalized handshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave.
