@@ -5,7 +5,7 @@ I'm writing this readme as an experiment to see if it helps you work with me bet
 # My Job
 
 - Attract and retain world-class talent (that's you)  
-- Set context for participants in the Future Makers Academy
+- Set clear context so people in the Future Makers Academy can be successful, connecting the dots between what MYOB needs and what the individual needs (career growth).
 
 I serve you, not the other way around. I'm here to help. Ask me. You work for MYOB, not for me nor any other manager. Optimize for MYOB. 
 
