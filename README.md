@@ -11,7 +11,7 @@ I serve you, not the other way around. I'm here to help. Ask me. You work for MY
 
 # On methods of communication 
 
-I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. If it's important and it does not need an immediate response **email me**. If you need an answer to something important or you are sending me important information **email me**. 
+I like Slack for quick interactions but sometimes I'm busy when a message comes through and I forget to respond. If it's important and it does not need an immediate response **email me**. If you need an answer to something important or you are sending me important information **email me**. I generally respond to emails within 24 hours unless it's a weekend or I'm on leave. If I haven't responded to your email within 24 hours and you need a response don't be shy to send me a poke over Slack to respond.  
 
 If there is something that needs my immediate attention and I'm not responding on Slack call me (my number is +64 22 161 7226).
 
@@ -60,7 +60,7 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 # Nuance 
 
-**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge.
+**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge. Often a quick walk around the neighborhood does is enough.  
 
 **I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
