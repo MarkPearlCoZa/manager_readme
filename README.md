@@ -55,9 +55,9 @@ At the end of the day one-on-ones are about building relationships on a level be
 
 # My North Star Principles
 
-## Transparency & Candor 
+## Transparency & Candour 
 
-I bias toward transparency and candor. You can ask me anything. Most of the time I'll answer. MYOB rarely requires me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I'm committed to never lying to you.
+I bias toward transparency and candour. You can ask me anything. Most of the time I'll answer. MYOB rarely requires me to not tell you about something but it cannot require me to lie to you and even if it did I would not abide by such a requirement. I'm committed to never lying to you.
 
 ## Feedback
 
@@ -81,7 +81,7 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 # Nuance 
 
-**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge. Often a quick walk around the neighborhood is enough. You will often see me walking. I like to walk and chat, feel free to join me for a walk anytime.    
+**I am an introvert**. That means if I've been in a large group of people I get exhausted and need some quiet time to recharge. Often a quick walk around the neighbourhood is enough. You will often see me walking. I like to walk and chat, feel free to join me for a walk anytime.    
 
 **I hate absolutes**. Always and never are triggers for me. I prefer usually and often.
 
@@ -91,7 +91,7 @@ I optimize for growth and learning which is probably why I got involved in the F
 
 **I am traditionally a people pleaser**. While I am no longer unable to say "no", I still want to find a way to help others. I try my best to not let this impact my ability to do my job, and more importantly those I work with. If you feel I am "people pleasing" to the greater detriment of others please call me out on it. I have grounded myself over the years so for the most part this is no longer an issue, but it does slip through sometimes.
 
-**I like to greet people by name and give them a hand shake**. If that feels awkward I'm up for any sort of variation of a handshake, from fist bump to personalized secret handshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave. I will do my best to greet you by name everyday, because of the challenges with my short term memory sometimes I may forget your name, if this happens just remind me. Don't feel like I don't care, I've forgotten my sisters name once in front of hundreds of people (ask me and I will tell you about how that happened).
+**I like to greet people by name and give them a hand shake**. If that feels awkward I'm up for any sort of variation of a handshake, from fist bump to personalized secret handshake. If you are really not comfortable with the physical contact let me know and I'll revert to a wave. I will do my best to greet you by name every day, because of the challenges with my short term memory sometimes I may forget your name, if this happens just remind me. Don't feel like I don't care, I've forgotten my sisters name once in front of hundreds of people (ask me and I will tell you about how that happened).
 
 **I hate indifference**. I feel strongly that if I'm in a "system" and I'm not happy with how things are going then I should do everything in my power to change the system or let those know who are able to make changes be aware of what can be improved. I believe working for a company is a system. I know this is not always easy however it's better than just not caring. I hope those I work with do the same.
 
